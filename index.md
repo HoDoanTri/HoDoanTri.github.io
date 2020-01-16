@@ -1,3 +1,3 @@
 ## Welcome
 
-Hi guys!
+Hi guys! I'm TriHo. Nice to meet you.
